@@ -19,7 +19,6 @@ Btw she got full marks in TMA and Practical
 
 - **[First Practical Exam Exp](https://www.reddit.com/r/Nios_unofficial/comments/1nfqy3v/first_practical_exp/)**
 
-
 ## ODE Exam experiences and megathread 
 
 -  **ODE 2025 July to Sept Experiences (Mega-Thread)                              [Link to section](https://www.reddit.com/r/Nios_unofficial/comments/1m07dj8/nios_ode_exam_megathread_starting_15th_july_to/?share_id=GW5quiQFrDNkEV-mqL7oz&utm_medium=android_app&utm_name=androidcss&utm_source=share&utm_term=1)**
@@ -63,6 +62,9 @@ Btw she got full marks in TMA and Practical
 
 7. **[Dropped Out in 2016. 8 Years Later, I Chose to Try Again..](https://www.reddit.com/r/Nios_unofficial/comments/1m1zucr/dropped_out_in_2016_8_years_later_i_chose_to_try/)**
 
+8. **[A JEE aspirant got her 75%+ criteria](https://www.reddit.com/r/Nios_unofficial/comments/1q7jekh/my_october_2025_nios_result/)**
+9.  **[Scored 83.2% in PCM and shared study tips](https://www.reddit.com/r/Nios_unofficial/comments/1q9tv0a/treasure_for_pcm/)**
+10. **[A chad student studied 4 days before exam and scored 86.8%](https://www.reddit.com/r/Nios_unofficial/comments/1q8z6wm/cant_believe_it/)**  
 
 ## 10th Secondary Public Exam Experiences
    
@@ -92,6 +94,8 @@ Btw she got full marks in TMA and Practical
 
 15. **[Flexibility in NIOS as a Boon for Dropouts](https://www.reddit.com/r/india/s/gsXmuRgWFd)**  
    A dropout shares how NIOS’s flexible learning structure allowed them to continue their education and pursue their goals.
+16. **[Secondary students score well in exams despite being a girl](https://www.reddit.com/r/Nios_unofficial/comments/1q8xp5z/my_resultig/)**  
+   A student shares her experience with marking on english subject 
 
 
 ---
